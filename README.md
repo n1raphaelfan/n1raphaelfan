@@ -15,7 +15,7 @@ ${\textsf{\color{#F1F1F1}she/him}}$
 <p align="center">
 ${\textsf{\color{#F1F1F1}indigenous}}$
 <p align="center">
- ${\textsf{\color{#F1F1F1}grocky shipper #sorry they literally explore eachothers bodies in the books}}$
+ ${\textsf{\color{#F1F1F1}grocky shipper...sorry.... they literally explore eachothers bodies in the book...s}}$
 <p align="center">
 https://n1raphaelfan.atabook.org/
 <p align="center">
